@@ -6,6 +6,6 @@
     ◇ I'm looking to collaborate with like minded individuals to prefer solutions through data transformation. 
     ◇ I'm currently learning Data Analytics and Web development. 
     ◇ I'm open to Data entry role.
-    ◇ Connect with me here: [LinkedIn](https://www.linkedin.com/in/iklimah-shuaib)
+    ◇ Connect with me here: [Linkedin](https://www.linkedin.com/in/iklimah-shuaib)
     ◇ FUN fact: I love learning new things and meeting amazing people 
 
